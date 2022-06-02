@@ -1,1 +1,2 @@
-# SharX-Reborn
+# Coming soon
+---------------------
